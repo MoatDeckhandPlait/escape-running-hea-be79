@@ -1,4 +1,4 @@
-
+smart escape running head Scripts is the best escape running head Script, featuring one-hit kill and auto-collect. Safe and powerful for all your
 
 
 
